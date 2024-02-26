@@ -1,2 +1,2 @@
-# 2023-Resume
-WakuuWorks 2023 Resume
+# 2024-Resume
+WakuuWorks 2024 Resume
